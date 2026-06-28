@@ -1,5 +1,4 @@
-# The-Effect-of-Cryptocurrency-on-Nigeria-s-Economy-The-Role-of-Stablecoins-in-Inflation-Hedging
-
+# The Effect of Cryptocurrency on Nigerias Economy
 # The Role of Stablecoins in Inflation Hedging
 
 ## Project Overview
